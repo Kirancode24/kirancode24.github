@@ -1,5 +1,5 @@
-# kirancode24.github
- **INDUCTION PROGRAM 2024**
+
+# INDUCTION PROGRAM 2024
 10 july - Day 1 : Kirtan and ardaas, auditorium session about history of college and alumini interaction.
 11 july - Day 2 : auditorium session about different clubs of college and various scholarships.
 12 july - Day 3 : class 1 mathematics - integral practice , class 2 UHV - first chapter.
